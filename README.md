@@ -10,7 +10,6 @@
 - 🚗 저의 드림카는 토요타 AE86입니다. 두부배달차 맞습니다.
 - 🌸 신예은 배우님의 팬입니다. 이달의소녀 츄도 좋아합니다.
 - 저는 폴로페스코 비건입니다.
-
 <!---
 uncyclocity/uncyclocity is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
