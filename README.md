@@ -11,6 +11,7 @@
 - 🌸 신예은 배우님의 팬입니다. 이달의소녀 츄도 좋아합니다.
 - 🥗 저는 폴로페스코 비건입니다.
 - 🏛 더불어민주당 권리당원이며, 대가리가 깨져도 문재인 대통령님을 지지합니다.
+- 🌲 한국토지주택공사에 입사해서 내부정보를 이용해 투기차익을 실현하고 싶습니다.
 <!---
 uncyclocity/uncyclocity is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
